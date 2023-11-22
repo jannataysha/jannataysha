@@ -1,7 +1,7 @@
-![Motion Graphics Designer and Graphics Designer](https://www.facebook.com/photo/?fbid=310837821753203&set=a.101952599308394)
+(https://www.facebook.com/photo/?fbid=310837821753203&set=a.101952599308394)
 ### Hi there 👋, jannataysha
 #### Motion Graphics Designer and Graphics Designer
-
+![Motion Graphics Designer and Graphics Designer]
 My name is Aysha Siddiqa Jannat, I am a graphic designer and motion graphic designer, I run own freelance design business and produce creative work for large and small brands.
 
 My design services include, Custom 2d explainer animation / Whiteboard animation / Custom  logo animation / Social media poster animation.
