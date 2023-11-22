@@ -1,4 +1,4 @@
-https://www.facebook.com/photo/?fbid=310837821753203&set=a.101952599308394
+
 ### Hi there 👋, jannataysha
 #### Motion Graphics Designer and Graphics Designer
 ![Motion Graphics Designer and Graphics Designer]
